@@ -1,6 +1,6 @@
 ### Martín Sintas de Sousa Bispo - UTN FRBA
 
-  Buenas, me llamo Martín y espero tengan una lectura inmersiva en este README jiji 🤓
+  Buenas, me llamo Martín, tengo 20 años y soy de devoto, CABA. espero tengan una lectura inmersiva en este README jiji 🤓
 
 ![IMG_20230204_195458_328](https://user-images.githubusercontent.com/129544689/229204050-e8cf2c82-4dfc-40c9-be23-d99792c8b9f5.jpg)
 
