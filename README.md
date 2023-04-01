@@ -17,7 +17,7 @@ Soy un chico tranquilo y sereno apasionado por la carrera que estudia y podría 
 - Suelo meditar diariamente
 - Desde 2019 comencé a tomar baños de agua fría por el reconocido Wim Hof y su libro: "The Wim Hof Method". En el cual se mencionan algunos beneficios de las duchas del agua fría (si quieren investigar más de este tema, en youtube está repleto de videos).
 - Mi forma de ser se basa en el estoicismo que es una rama de la filofía con grandes representantes de la misma como pueden ser: Marco Aurelio (con el memento mori y amor fati, entre otros), Séneca, Zenon, entre otros. Les hago una breve descripción del estoicismo de paso: El estoicismo es la capacidad o la fuerza de voluntad de un individuo para controlar sus emociones o sentimientos. Alguien estoico, por tanto, se mantiene firme ante la adversidad.
-- Para finalizar les comentó que una de mis mascotas se llama lucy, la cual, es una ragdoll (adjunto foto de lucy para que se mueran de ternura 🤠).
+- Para finalizar les comentó que una de mis mascotas se llama lucy, la cual, es una ragdoll, tiene 2 años y la adoro profundamente (adjunto foto de lucy para que se mueran de ternura 🤠).
 
 ![IMG_20230130_152759_756](https://user-images.githubusercontent.com/129544689/229211007-36f15cef-482b-4a3a-8c39-661abc763931.jpg)
 
